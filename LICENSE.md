@@ -1,4 +1,4 @@
-# 
+# VIP FL Studio herramientas para Mac OS | Exclusivo FL Studio herramientas para PC Windows. Con seguimiento de movimiento y gradación de color — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
